@@ -1,1 +1,1 @@
-# -Tecno-project-computer-and-laptop-
+# Tecno-project (computer and laptop)
